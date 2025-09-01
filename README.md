@@ -1,10 +1,10 @@
 Hi! 👋 I'm Emily Rios
 
 
-I'm currently an **SCOM major** with a concentration in Public Relations, a Digital Studies Minor, and an Honors Interdisciplinary Minor 📝
+-I'm currently an **SCOM major** with a concentration in Public Relations, a Digital Studies Minor, and an Honors Interdisciplinary Minor 📝
 
 
-I currently work with the Community Engagement & Volunteer Center at JMU
+-I work with the Community Engagement & Volunteer Center at JMU⚡
 
 
 Some things I love doing:

@@ -10,7 +10,7 @@ Hi! 👋 I'm Emily Rios
 
 
 
-Some things I love doing:
+**Some things I love doing:**
 
 -I love listening to music🎶🎧
 

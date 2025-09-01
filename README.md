@@ -7,6 +7,9 @@ Hi! 👋 I'm Emily Rios
 -I work with the Community Engagement & Volunteer Center at JMU⚡
 
 
+
+
+
 Some things I love doing:
 
 -I love listening to music🎶🎧

@@ -12,6 +12,6 @@ Some things I love doing:
 
 -Baking🍪!
 
-![GitHub Logo](https://github.githubassets.com/images/modules/logos_page/GitHub-Mark.png "GitHub Logo")
+![GitHub Logo](images/GitHub-Logo.png "GitHub Logo")
 
 **LinkedIn: www.linkedin.com/in/emily-rios-38278932a**

@@ -18,6 +18,8 @@ Hi! 👋 I'm Emily Rios!
 
 -Baking🍪!
 
+**LinkedIn: www.linkedin.com/in/emily-rios-38278932a**
+
 ![GitHub Logo](images/GitHub-Logo.png "GitHub Logo")
 
-**LinkedIn: www.linkedin.com/in/emily-rios-38278932a**
+
